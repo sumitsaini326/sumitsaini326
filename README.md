@@ -44,3 +44,5 @@ Experienced Software Engineer with 10+ years of professional expertise building 
 ### 📬 Connect With Me
 - 📧 Email: sumitsaini326@gmail.com
 - 📍 Location: Roorkee, Uttarakhand, India
+- 💼 **LinkedIn:** [https://linkedin.com](https://www.linkedin.com/in/sumitsaini1/
+
